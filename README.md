@@ -1,0 +1,1 @@
+# TQTU-vs.-Loop-Quantum-Gravity-An-Ontological-Mathematical-and-Predictive-Comparison
